@@ -1,4 +1,4 @@
-# Strogonoff de Frango :chicken:
+# Fricassê :chicken:
 
 ### Ingrediente
 
